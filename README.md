@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @Jyoti2116
-- 👀 I’m interested in listening music,writing poems,travelling.
-- 🌱 I’m currently learning industrial information technology in LAB University.
+Hi its me jyoti kc basnet from Nepal .I am a student in LAB university studying IIT,
+
   
 
   
