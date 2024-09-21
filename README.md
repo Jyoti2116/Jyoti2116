@@ -1,4 +1,5 @@
-Hei, its me jyoti kc basnet from Nepal .I am a student in LAB university studying IIT,
+Hei,
+Its me jyoti kc basnet from Nepal .I am a student in LAB university studying Industrial Information Technology.
 
   
 
